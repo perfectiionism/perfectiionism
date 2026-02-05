@@ -11,5 +11,5 @@ Mike⠀<img src="https://cdn3.emoji.gg/emojis/77793-blue-jellyfish.gif" width="3
 
 [Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[LoveMail](https://rentry.co/lovemailsfm)
 
-cancel [@vysters](https://github.com/vysters) pls. i hate it. delete ur profile pls. STOP ADDING MORE!!!! IT SUCKS!!!!!
+cancel [@vysters](https://github.com/vysters) pls. i hate it. delete ur profile pls. STOP ADDING MORE!!!! IT SUCKS!!!!! DYDE STOP MILEVENING it sucks burn it
 </div>
