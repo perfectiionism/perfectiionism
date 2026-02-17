@@ -14,6 +14,4 @@
 
 hii [@vysters](https://github.com/vysters) biggest mileven shipper! It's ok but I'll burn your mileven merch okay? okay! ily!
 
-![my image](https://github.com/perfectiionism/perfectiionism/blob/572349dfe39242a5d77dd48fefc7299706cccd4a/images%20(1).jpeg?raw=true)
-foah canon😭🙏🙏trust🥺❤️✌️👋😋😳
 </div>
