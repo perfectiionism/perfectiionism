@@ -10,7 +10,7 @@
 ⠀He/Him⠀ 𓏏
 ⠀⠀⠀
 
-[Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[LoveMail](https://rentry.co/lovemailsfm)⠀⠀[Guns.lol](https://guns.lol/trianglelungs)
+[Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/trianglelungs)
 
 hii [@vysters](https://github.com/vysters) biggest mileven shipper! It's ok but I'll burn your mileven merch okay? okay! ily!
 
