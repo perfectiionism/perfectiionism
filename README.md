@@ -5,7 +5,7 @@
 
 ![STALKERS](https://komarev.com/ghpvc/?username=perfectionism&label=stalkers&color=2ec4b6)
 
-![my image](https://github.com/perfectiionism/perfectiionism/blob/00b79e32c815f9c757fdd6f456ddc9bd4bd6c2be/Untitled590_20260217005257.png?raw=true)
+![my image](https://github.com/perfectiionism/perfectiionism/blob/02631ba8a57dc106644e16aa56a53c9b14bcaeb8/Untitled590_20260302162321.png?raw=true)
 ꒱͏ㅤMike⠀<img src="https://cdn3.emoji.gg/emojis/77247-blue.gif" width="32" height="32" alt="Blue Jellyfish">
 ⠀He/Him⠀ 𓏏
 ⠀⠀⠀
