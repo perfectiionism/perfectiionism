@@ -11,8 +11,6 @@
 ⠀⠀⠀
 
 [Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/trianglelungs)
-lovemail wip/rmk
 
-hii [@vysters](https://github.com/vysters) biggest mileven shipper! It's ok but I'll burn your mileven merch okay? okay! ily!
-
+[@vysters](https://github.com/vysters) byler 💙
 </div>
