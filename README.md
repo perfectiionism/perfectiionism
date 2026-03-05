@@ -9,8 +9,11 @@
 ꒱͏ㅤMike⠀<img src="https://cdn3.emoji.gg/emojis/7162-angelbow.png" width="32" height="32" alt="Blue Jellyfish">
 ⠀He/Him⠀ 𓏏
 
+
 rentries
+
 [I](https://rentry.co/wheeIeer)　　[II](https://rentry.co/theheartt)　　[III](https://rentry.co/byIeer)
+
 ⠀⠀⠀
 
 [Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/trianglelungs)
