@@ -8,9 +8,12 @@
 ![my image](https://github.com/perfectiionism/perfectiionism/blob/02631ba8a57dc106644e16aa56a53c9b14bcaeb8/Untitled590_20260302162321.png?raw=true)
 ꒱͏ㅤMike⠀<img src="https://cdn3.emoji.gg/emojis/7162-angelbow.png" width="32" height="32" alt="Blue Jellyfish">
 ⠀He/Him⠀ 𓏏
+
+rentries
+[I](https://rentry.co/wheeIeer)　　[II](https://rentry.co/theheartt)　　[III](https://rentry.co/byIeer)
 ⠀⠀⠀
 
-[Rentry](https://rentry.co/theheartt)　[Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/trianglelungs)
+[Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/trianglelungs)
 
 [@vysters](https://github.com/vysters) byler 💙
 
