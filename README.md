@@ -9,7 +9,7 @@
 ꒱͏ㅤMike⠀<img src="https://cdn3.emoji.gg/emojis/7162-angelbow.png" width="32" height="32" alt="Blue Jellyfish">
 ⠀He/Him⠀ 𓏏
 
-[Rentry](https://rentry.co/theone4u) [Rentry w/ gf <3 aww](https://rentry.co/byIeer) [Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/cleradin)
+[Rentry](https://rentry.co/theone4u)⠀⠀[Rentry w/ gf <3 aww](https://rentry.co/byIeer)⠀⠀[Ata](https://facepaints.atabook.org/)⠀⠀[Pronouns](https://en.pronouns.page/@beautyclown)⠀⠀[Guns.lol](https://guns.lol/cleradin)
 
 [@vysters](https://github.com/vysters) byler 💙
 
