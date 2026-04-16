@@ -3,7 +3,7 @@
 ( ˶ˆ꒳ˆ˵ )
 
 
-![wheeler](https://komarev.com/ghpvc/?username=perfectionism&label=stalkers&color=2ec4b6)
+![wheeler](https://komarev.com/ghpvc/?username=perfectionism&label=wheeler&color=2ec4b6)
 
 ![my image](https://github.com/perfectiionism/perfectiionism/blob/d33dcb574a7013afa588c5f2ad564112761b60eb/a9ded852aea69913491d8d92d7151666%20(1).jpg?raw=true)
 
